@@ -1,1 +1,1 @@
-# P-26
+This is a recipie for Mint Chocolate flavored ice cream =D
